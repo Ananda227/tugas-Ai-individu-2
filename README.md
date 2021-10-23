@@ -1,0 +1,2 @@
+# tugas-Ai-individu-2
+TUTORIAL BIKIN AKUN GITHUB
